@@ -1,0 +1,1 @@
+# plugins-e-namad-shamed-logo-manager
